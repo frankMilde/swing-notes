@@ -1,6 +1,6 @@
-% Title:    Invitational
-% Author:   Frank Milde
-% Created:  Fri Apr 18 18:59:17 2014
+% Title:    Invitational  
+% Author:   Frank Milde  
+% Created:  Fri Apr 18 18:59:17 2014  
 
 Classes
 =======
