@@ -61,8 +61,8 @@ Classes
     - more bounce
 
 
-16.04.2014 class 03 - visual leading
-------------------------------------
+16.04.2014 class 03 - visual leading/matching energy levels
+------------------------------------------------------------
 
 The bottom lines of this class was: 
 * if you match the energy levels of your partner it is much easier to dance
