@@ -105,3 +105,96 @@ Mostly without connection. Either the L or F leads.
   - leftside, rightside and underarm pass
   - tuck turn
   - swing out
+
+
+23.04.2014 class 03 - Connection techniques
+-------------------------------------------
+
+In general, never stop your (body) movement while dancing. Try to avoid
+still points and keep it flowing.
+
+* Ropey style: 
+  - no stretch, no hips, nothing
+  - be super bouncy, helps you keep the rhythm
+  - have a constant speed, tempo in your movement
+  - lots of (for the lack of a better word) walking: For L when doing the
+    SO, always move backwards on your TS. For the connection this means when
+    arms a extended (almost to their maximum) the F should start to move
+    towards the L. No stretch though!
+* Butt-stretch style: 
+  - Your butt keeps moving while your UB comes to a relative halt.
+  - this should result in a stretchy feeling. 
+  - when the L releases, this should results in the F to move 
+  - the tempo of the movement has more of an acceleration feel to it and not
+    so much constant
+* UB stretch style:
+  - by twisting your UB a stretch is created
+  - try to **not** twist your feet/lower body
+  - for L: always **look** at your Fs
+
+Final exercise was to mix all styles within one dance.
+
+
+30.04.2014 class 04 - Tempi techniques
+--------------------------------------
+
+The music can be interpreted in various ways, which leads to different
+styles of dancing onto a given tempo.
+
+* On the beat:
+  - every step is exactly on the beat
+  - keep moving and bouncing all the time
+  - essentially has the **ropey** style of last class
+* Behind the beat:
+  - build in a lot of delays in your dance (one, twooooo, three and four)
+  - essentially has the **stretch** style of last class
+* Before the beat:
+  - move faster then actual timing to create moments where you can hit a
+    break (and let the music catch up)
+  - makes it easier to have breaks at fast tempo
+
+
+07.05.2014 class 05 - Fast dancing
+----------------------------------
+
+* Mirroring exercise:
+  - Adding TS (face to face)
+  - Important: Keep the same bounce; only change the posture (TS are more
+    into the ground than steps)
+* Weight changes:
+  - Important: always move backwards (LaF)!
+  - adding TS (slide/shuffle the steps & TS)
+* Swing outs:
+  - Important: both dancers should always move backwards; It’s important for
+    Fs to keep the counterbalance all the time
+  - Exercise: Switch between normal tempo and half tempo SO to fast music
+  - Important: Keep body movement the same in all tempi
+  - Exercise: Switch tempo halftime through the SO
+  - Exercise: Fast song with only half tempo SO
+  - Exercise: Slow song with only double tempo SO
+  - Exercise: Fast (Slow) song with all kinds of moves in
+    half/normal(/double) tempo
+
+
+14.05.2014 class 06 - Swing outs
+--------------------------------
+
+Important fact to know about SO: There are many different ways to do the SO,
+today we learn the “Eran-version” of it.
+
+* Mirroring exercise: Counterbody shoulder stretch
+  - Important: Properly release the shoulder forwards (= Counts “1, 2” in
+    the SO)
+  - Goal: Catch the F as early as possible
+  - Catch the F on the hip
+  - Allow F movement to turn the L around (= Counts “3 and 4” in the SO)
+* On count “4”: 
+  - F be in control of their own body weight (LaF don’t support each others’
+    weight but still keep the connection)
+* Counts “7 and 8”
+  - Accelerating & Decelerating exercise (S, S, TS  side by side):
+  - Important: L try to accelerate and decelerate the TS
+  - Use the deceleration on 7,8 to prevent swivels  (Fs should try to swivel
+    whenever they have the opportunity)
+  - Lead the swivels by moving backwards (on 7,8)
+
