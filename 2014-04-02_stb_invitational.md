@@ -198,3 +198,27 @@ today we learn the “Eran-version” of it.
     whenever they have the opportunity)
   - Lead the swivels by moving backwards (on 7,8)
 
+
+28.05.2014 class 07 - Swing outs (Swivel vs TS)
+-----------------------------------------------
+
+Remarks on general SO techniques:
+* really twist your UB, not only flinging your arms
+* don't turn your head, look at your partner instead while twisting UB
+* L keep feet/hips straight
+* F when in swivels your LB is twisted in the opposite direction of
+	your UB twist. That's even harder then for Ls, but suppose to be that way... sorry.
+
+Leading Swivel and TS:
+* Fs should always go for the swivel if they can.
+* can be lead when on count 6 the L goes backwards with left leg instead of
+	forward -->  keep stretch/connection strong so F can swivel
+* Swivel on count 7 and 8 is a "Lean,release,lean" from L perspective, which 
+  means the connection/stretch is only shortly released and L creates stretch again
+* TS is lead via "hug the fat child" or "lean, tension, release", which
+	means L really releases the stretch on the last TS so the F cannot swivel
+* exercise: LaF are F2F both start rocking from on side to the other, when
+	both are in timing, L starts to create a stretch via a RS. L keeps on
+	doing a RS where he "Lean,release,lean" and F train to swivel (as on
+	counts 1 and 2). At one point L decides to release and F should not be
+	able to swivel, but rather to do a TS
