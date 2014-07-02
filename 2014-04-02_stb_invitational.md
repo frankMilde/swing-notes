@@ -267,7 +267,7 @@ Remark on general style:
 * fast dancing: go down, small steps, leave out TS, don't tense up
 	connection, keep it loose
 
-California routine:
+California routine to *Jumpin on the woodside* by  Benny Goodman:
 * 3xSO at 45 degree, F look and smile at judges and swivel
 * circle + reverse stop (go down L, both look at judges again)
 * kick the dog 3x
