@@ -222,3 +222,67 @@ Leading Swivel and TS:
 	doing a RS where he "Lean,release,lean" and F train to swivel (as on
 	counts 1 and 2). At one point L decides to release and F should not be
 	able to swivel, but rather to do a TS
+
+
+04.06.2014 class 08 - Swing out variations and connection points
+----------------------------------------------------------------
+
+Remark on general style:
+* always keep moving, have no still points even in your basic steps
+* use the momentum of your partner and keep the momentum in your dance
+* exercise: Do continuous left-side passes down a line by using the momentum
+	of your partner. Ignore footwork for that matter.
+* same feel for SO. use momentum and dont stop ('til you get enough).
+
+SO variations:
+* TS vs swivels
+* Savoy (forward) SO with TS turn
+* Whip SO
+  - create a double stretch by using only your UB. Ls don't yank your elbows.
+	- is nice to go into an overrotated SO
+	- go into a figure which feels like a swing, where LaF TS sideways in
+		front of one another
+
+Connection points
+* left elbow of L. Follows can really grab it, but connection should stay
+	light.
+* only left hand
+* exercise: Leader let go of F during swingout and only use elbow connection
+
+
+11.06.2014 no class
+-------------------
+
+18.06.2014 class 09 - Performance
+---------------------------------
+
+Remark on general style:
+* look to the judges/audiance, smile, have fun
+* in SO send F at 45 degree angle so they can show off
+* don't look down on feet
+* you will scew up, don't panic, look where everybody else is and join in
+	again
+* really shoot forward (F in SO or when doing the *kick the dog*)
+* keep the line, always orient after the pair on your right
+* fast dancing: go down, small steps, leave out TS, don't tense up
+	connection, keep it loose
+
+California routine:
+* 3xSO at 45 degree, F look and smile at judges and swivel
+* circle + reverse stop (go down L, both look at judges again)
+* kick the dog 3x
+* TT at 45 degrees to the right
+* underarm pass
+* circle reverse stop
+* jump, send out, wobbly legs
+* skates (left, right, left)
+* frog jump
+* TT straight
+* barrel roll + little jump on 7 and 8
+* around the world aerial or just wobbly knees and point to the top
+* slip slop (right, left, front, back) padam and change hand position from
+	left to right
+* RS to SS turn with kicks and hands swinging up and down (L turns 2x, F
+	turns 1.5x) and entry in to the tandem
+* tandem basic
+* tandem with F jump on count 3
