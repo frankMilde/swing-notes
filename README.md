@@ -46,6 +46,7 @@ Used throughout this repo are:
   * SO  - swing out
   * BI  - bring in
   * T   - turn
+  * TD  - tandem charleston
   * CD  - change direction
   * TT  - tuck turn
   * PT  - pop turn
